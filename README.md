@@ -40,7 +40,8 @@ NumPy & Pandas
 
 Rohan Jadhav
 
-📧 rohanjadhav772006@ritindia.edu
+📧 rohanjadhav772006@gmail.com
 
 🌐 
+
 
